@@ -1,0 +1,2 @@
+# ParcialTrescami
+camila zamora usc
